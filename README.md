@@ -1,2 +1,2 @@
 # paglathanasatrosongsod.xyz
-https://github.com/Arafatsorkar1/paglathanasatrosongsod.xyz.git
+[(https://arafatsorkar1.github.io/paglathanasatrosongsod.xyz/)](https://arafatsorkar1.github.io/paglathanasatrosongsod.xyz/)
